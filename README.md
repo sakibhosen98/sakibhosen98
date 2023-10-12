@@ -1,4 +1,3 @@
-![Web developer](https://i.ibb.co/fDbR4X2/IMG-20230823-WA0002.jpg)
 ### Hi there 👋, I'm Sakib Hosen
 #### Web developer
 
